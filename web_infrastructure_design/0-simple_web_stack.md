@@ -1,4 +1,7 @@
-<img/>https://ibb.co/Lv9NfbW<img>
+<a href="https://zupimages.net/viewer.php?id=23/44/b43z.png"><img src="https://zupimages.net/up/23/44/b43z.png" alt="" /></a>
+
+
+
 What is a server ?
 A server is a computer specially configured to provide services, data or resources to other computers, usually called clients, via a network.
 ---------------------------------------------------------------------------------------
