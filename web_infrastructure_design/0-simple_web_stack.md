@@ -1,4 +1,4 @@
-<a href="https://zupimages.net/viewer.php?id=23/44/b43z.png"><img src="https://zupimages.net/up/23/44/b43z.png" alt="" /></a>
+<a href="https://zupimages.net/viewer.php?id=23/44/otxj.jpeg"><img src="https://zupimages.net/up/23/44/otxj.jpeg" alt="" /></a>
 
 
 
